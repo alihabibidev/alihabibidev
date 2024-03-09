@@ -1,5 +1,5 @@
 # 💫 About Me:
-Passionate about web development and coding enthusiast. Eager to collaborate on innovative projects. Let's create something amazing together! 🚀
+My name is Ali Habibi ,Passionate about web development and coding enthusiast. Eager to collaborate on innovative projects. Let's create something amazing together! 🚀
 
 
 ## 🌐 Socials:
